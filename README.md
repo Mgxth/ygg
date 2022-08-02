@@ -1,2 +1,0 @@
-# ygg
-F_btjfbtvyf
